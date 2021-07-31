@@ -1,4 +1,3 @@
-- 📫 How to reach me ...
 - 👋 Hello, I’m @UserID-Unknown
 - 👀 I’m interested in Administration or Moderation through out any platform.
 - 📫 You can contact me on the following: Instagram (axlentalstormz) or Discord (🌹 𝐸𝓉𝒽𝒶𝓃317 🥀#1212)
